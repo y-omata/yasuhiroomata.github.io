@@ -1,0 +1,1 @@
+# yasuhiroomata.github.io
